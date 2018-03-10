@@ -1,1 +1,1 @@
-Personal recolletions, preserved and shared.
+Personal recollections, preserved and shared.
